@@ -38,4 +38,4 @@ Last updated: 5th August, 2024
    We may update this policy from time to time. We will notify users of any changes by posting the new policy on this page.
 
 10. Contact Us
-    For any questions about this privacy policy, please contact us at [Your Contact Email].
+    For any questions about this privacy policy, please contact us at ytlabelsdeveloper@gmail.com.
