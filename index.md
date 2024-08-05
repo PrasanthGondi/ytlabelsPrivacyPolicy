@@ -1,4 +1,4 @@
-Privacy Policy for YouTube Content Analyzer Extension
+Privacy Policy for YouTube Labels Extension
 
 Last updated: 5th August, 2024
 
